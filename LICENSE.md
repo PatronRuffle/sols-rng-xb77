@@ -1,4 +1,4 @@
-#  
+#  Experience sol's rng like never before with best Script for sol's rng, the #1 Script. Includes auto-upgrade and infinite resources for unbeatable
 
 
 
